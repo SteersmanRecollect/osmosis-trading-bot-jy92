@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with osmosis trading bot custom Algorithm | sniper-trades & staking-integration, the #1 osmosis trading bot. Includes sniper-trades and staking-integration
 
 
 
